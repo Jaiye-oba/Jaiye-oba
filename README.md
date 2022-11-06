@@ -5,7 +5,7 @@ Jaiyeoba Olufunmilayo
 9:04 AM (56 minutes ago)
 to me
 
-https://www.linkedin.com/in/olufunmilayo-jaiyeoba-2a388b232) [![Twitter Badge](https://img.shields.io/badge/-@iambolajiayo-1ca0f1?style=for-the-badge&logo=twitter&logoColor=white&link=https://https://twitter.com/PinkieUnusual?t=gjvb44FPOWVCXvc1y3Wm4g&s=08)
+https://www.linkedin.com/in/olufunmilayo-jaiyeoba-2a388b232)badge&logo=twitter&logoColor=white&link=https://https://twitter.com/PinkieUnusual?t=gjvb44FPOWVCXvc1y3Wm4g&s=08)
 
 I'm a Budding Frontend Engineer in training who is currently a student  @altschoolafrica.  I'm passionate about learning new things, sharing knowledge and documentation. i build useful [open-source projects]
 **Here's a quick summary about me
